@@ -1,3 +1,3 @@
 
 [高科大][(https://www.nkust.edu.tw/)]
-![NKUST](182513897.png "NKUST")
+![NKUST](螢幕擷取畫面 2025-09-29 231100.png)
